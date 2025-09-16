@@ -1,2 +1,1 @@
 - I'm just a guy, still finding the balance between living life and moving my career forward.
--  
